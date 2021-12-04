@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+Seeing about one truth, the appearance is an adult, the brain is a child, the name is "Yodogawa Conan"
+
 <!--
 **aktuehr/aktuehr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
